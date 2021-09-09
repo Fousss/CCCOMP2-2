@@ -1,3 +1,1 @@
-# CCCOMP2-2
-uwu
-?
+# Exposicion de CCCOMP2-2
